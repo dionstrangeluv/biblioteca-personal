@@ -44,3 +44,11 @@
   - Thompson
   - Hodgskin
   
+## Teoría de la alienación de los proletarios:
+- Max Stirner
+  
+***
+
+Idealismo alemán
+Racionalismo francés
+Economía política inglesa
